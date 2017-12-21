@@ -61,7 +61,17 @@ UEFA Championship i Moskva
 
 * erfaring med administrative opgaver i forbindelse med tilmeldinger, test- og eksamensafvikling, gentilmeldinger, registrering af fravær, henvisning til andre sprogcentre; 
 
-* serviceminded og fleksibel. 
+* serviceminded og fleksibel.
+
+## Sprog
+
+* Dansk–Flydende, både mundtligt og skriftligt
+* Engelsk–Flydende, både mundtligt og skriftligt 
+* Fransk–Godt niveau, både mundtligt og skriftligt
+* Russisk–Modersmål
+
+
+
 
 
 
