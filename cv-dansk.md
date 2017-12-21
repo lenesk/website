@@ -70,8 +70,24 @@ UEFA Championship i Moskva
 * Fransk–Godt niveau, både mundtligt og skriftligt
 * Russisk–Modersmål
 
+## Uddannelse
+[Diplomuddannelse i dansk som andet- og fremmedsprog for unge og voksne](http://edu.au.dk/uddannelse/kurserogefteruddannelse/dansksomandetsprog/)<br/>
+2011/02–2014/06		Aarhus Universitet, Danmarks Institut for Pædagogik og Uddannelse, Emdrup
 
+[Cand.mag. i lingvistik](http://kandidat.au.dk/lingvistik/)<br/>
+2010/09–2012/04		Aarhus Universitet
 
+**Eksaminer & opbygning:**
+
+* Speciale i dansk som fremmed- og andetsprogs fonetik og fonologi: “Russisk accent hos russisk-talende der lærer dansk som fremmed- og andetsprog”;
+
+* Udvidet grammatisk disciplin: “Perfective and Imperfective aspect in Russian and its translation into Danish”;
+
+* Anvendt lingvistik: “Neurolinguistic peculiarities of lexical processing in bilinguals”;
+
+* Temaer i Sociolingvistik/Antropologisk lingvistik: “Narrative competence of children with migrant background”;
+
+* Udvidet tværfaglig disciplin:“Language acquisition in special populations: post-aphasia language recovery mechanisms and aphasia therapy”.
 
 
 
