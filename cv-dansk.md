@@ -72,10 +72,10 @@ UEFA Championship i Moskva
 
 ## Uddannelse
 [Diplomuddannelse i dansk som andet- og fremmedsprog for unge og voksne](http://edu.au.dk/uddannelse/kurserogefteruddannelse/dansksomandetsprog/)<br/>
-2011/02–2014/06		Aarhus Universitet, Danmarks Institut for Pædagogik og Uddannelse, Emdrup
+2011/02–2014/06 Aarhus Universitet, Danmarks Institut for Pædagogik og Uddannelse, Emdrup
 
 [Cand.mag. i lingvistik](http://kandidat.au.dk/lingvistik/)<br/>
-2010/09–2012/04		Aarhus Universitet
+2010/09–2012/04 Aarhus Universitet
 
 **Eksaminer & opbygning:**
 
@@ -88,6 +88,19 @@ UEFA Championship i Moskva
 * Temaer i Sociolingvistik/Antropologisk lingvistik: “Narrative competence of children with migrant background”;
 
 * Udvidet tværfaglig disciplin:“Language acquisition in special populations: post-aphasia language recovery mechanisms and aphasia therapy”.
+
+[Cand.phil. i oversættelse, tolkning, lingvistik og simultantolkning
+(engelsk, dansk, fransk)](https://www.linguanet.ru/en/studies/programmes-courses/masters/linguistics-45-04-02-translation-and-interpreting-studies/)<br/>
+2005–2010 Moskvas Statslige Lingvistiske Universitet, Rusland, Moskva
+
+
+2003–2005 		gymnasieuddannelse (Attestat) med avanceret undervisning i engelsk
+
+## Øvrige interesser
+
+Atletik, langrend, oversættelse af børnelitteratur, datalingvistik, Natural Language processing
+
+## Reference efter anmodning
 
 
 
